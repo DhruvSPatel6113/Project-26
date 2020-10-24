@@ -1,0 +1,23 @@
+Step 1 Soak chana dal for 5-6 hours
+
+To prepare this Gujarati speciality, first, take a large-sized bowl and pour a good amount of water in it. Then, transfer the chana dal in it. Cover with a lid and keep aside for at least 5-6 hours.
+
+
+Step 2 Prepare the Khamani spice mix
+
+Next, take a large-sized pan and place it on medium-low flame. Then, pour and heat oil in it. Now, add mustard seeds and stir them for 5-10 seconds. Next, add the ginger paste along with green chilli paste, sugar, lemon juice and mix well. Also, add salt as required. Stir well for about 10-12 minutes and then keep aside.
+
+
+Step 3 Grind the chana dal
+
+After the dal is soaked in water for at least 5-6 hours, drain the water from its bowl. Now, transfer the soaked dal in a mixer-grinder jar. Grind it at maximum speed until it becomes partially smooth in texture.
+
+
+Step 4 Cook the dal paste & add seasoning
+
+Next, take a separate large-sized pan and place it on medium flame. Now, transfer the blended dal in the pan and stir well until it reaches the boiling temperature. Make sure that the dal is cooked properly and is tender in texture. Also, add salt as required and mix well. Once done, turn the flame off and keep aside.
+
+
+Step 5 Layer the dal & spice mixture before garnishing
+
+Now, take a serving dish and transfer the prepared dal (step 4) in it. Then, transfer the prepared spice mixture(step 2) over it. Garnish with pomegranate, sev, coriander leaves and serve immediately.
